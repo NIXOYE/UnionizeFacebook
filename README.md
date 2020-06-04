@@ -7,7 +7,10 @@ Black Lives Matter is not just three words. It is not an oppurtunity for y'all t
 
 BLACK LIVES MATTER
 
-1. https://www.businessinsider.com/facebook-knew-algorithms-divided-users-execs-killed-fixes-report-2020-5
-2.https://www.theguardian.com/technology/2014/jun/29/facebook-users-emotions-news-feeds
-3.https://www.theguardian.com/technology/2019/mar/17/the-cambridge-analytica-scandal-changed-the-world-but-it-didnt-change-facebook
-4.https://www.washingtonpost.com/technology/2020/01/09/facebook-wont-limit-political-ad-targeting-or-stop-pols-lying/
+1- https://www.businessinsider.com/facebook-knew-algorithms-divided-users-execs-killed-fixes-report-2020-5
+
+2- https://www.theguardian.com/technology/2014/jun/29/facebook-users-emotions-news-feeds
+
+3- https://www.theguardian.com/technology/2019/mar/17/the-cambridge-analytica-scandal-changed-the-world-but-it-didnt-change-facebook
+
+4- https://www.washingtonpost.com/technology/2020/01/09/facebook-wont-limit-political-ad-targeting-or-stop-pols-lying/
