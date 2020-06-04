@@ -9,9 +9,9 @@ Many employees at Facebook have voiced their concerns with these actions in sepe
 
 Black Lives Matter is not just three words. It is not an oppurtunity for y'all to pretend to stand with us. It is not a trend. It is not an aestethic. It is not a fucking Public Relations campaign. At the very least it is an oppurtunity to enact true change even in that face of adversity and PROVE y'all care about us. Please, do what's right. Unionize.
 
-BLACK LIVES MATTER
-
 Need help starting a union? try contacting https://techworkerscoalition.org/
+
+BLACK LIVES MATTER
 
 1- https://www.businessinsider.com/facebook-knew-algorithms-divided-users-execs-killed-fixes-report-2020-5
 
