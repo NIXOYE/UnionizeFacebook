@@ -11,7 +11,7 @@ Black Lives Matter is not just three words. It is not an oppurtunity for y'all t
 
 Need help starting a union? try contacting https://techworkerscoalition.org/
 
-BLACK LIVES MATTER
+Black Lives Matter
 
 1- https://www.businessinsider.com/facebook-knew-algorithms-divided-users-execs-killed-fixes-report-2020-5
 
